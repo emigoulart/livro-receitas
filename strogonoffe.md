@@ -1,1 +1,0 @@
-# Strogonoffe de Frango :chicken:
